@@ -6,6 +6,6 @@ The mp3 audio file attached was developed as part of a master thesis on how audi
 Instructions for use:
 1) Best results with headphones or ear buds.
 2) Relax in a comfortable sitting or lying down position.
-3) Take 3 deep slow breaths and play the mp3.
+3) Take 3 deep slow breaths, close your eyes and play the mp3.Keep breathing slowly.
 4) When it ends, keep the eyes closed and relaxed until you feel compelled to open them.
 5) May be repeated
